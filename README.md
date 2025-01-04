@@ -7,3 +7,6 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Mhd Firdaus Alfatah Nst, [instagram](https://www.instagram.com/firdays.20.2?igsh=MWg5ZjFrNTd3eGwzZw==).
+
+
